@@ -1,1 +1,1 @@
-https://megawrzuta.pl/rpncq3g0
+https://megawrzuta.pl/rpncq3g0 ( Jestem dopiero początkującym UI Designerem )
